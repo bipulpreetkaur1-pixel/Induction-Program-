@@ -5,4 +5,4 @@
 #### Next the chief Guest Mr. Maheshinder Singh Grewal Sir,ex. Cabinet Minister of Punjab shared his valuable thoughts on various aspects.He  also shared his personal experience with G.N.D.E.C and complimented about the excellent education of this institution. I really learnt countless lessons from the speakers. At last, we visited our ECE Department and many other labs.
 # Day-2
 ## 1 August 2025
-####
+#### The second day of induction programme started with the lecture of Dr Priya Darshini ma'am .She really gave an innovative lecture on important subject ’Universal Human Values'.
