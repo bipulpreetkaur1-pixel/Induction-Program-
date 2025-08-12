@@ -1,3 +1,4 @@
+# INDUCTION PROGRAM 
 # Day -1
 ## 30 July 2025{ Wednesday}
 #### The first day G.N.D.E.C started with the blessings of God. Firstly all the students of core branches assembled in the college's Gurudwara Sahib to seek the blessings of God,before starting their journey in G.N.D.E.C, Kirtani Jathar recited shabads and prayed for success of every student.After taking snacks and tea, all the students got their welcome kits .Then we all went to auditorium,the atmosphere was fantastic and stage was beautifully decorated with flowers.The first speaker Dr.Harpreet Kaur Grewal Mam taken the stage , welcome all this students  whole heartedly and also gave an inspiring speech.She taught us the importance of 'Sustained Freedom'.
