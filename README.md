@@ -27,4 +27,5 @@
 # Day-7
 ## 8 August 2025 {Friday}
 #### This was the last day of induction program where the first lecture is of P2P conducted by seniors . They taught us many rules of programming languages,also encouraged us to build confidence.We visited different workshops like fitting, foundry , machine etc. and a basic introductory lecture was given by professors.
-
+# Conclusion 
+#### The GNDEC induction program was a combination of academics, fitness or health,ehical grounding and personal development. As I reflect on this experience, I am grateful for the opportunities to learn, grow, and connect with the vibrant community at GNDEC and also thankful of Department of Applied Sciences for providing us this opportunity.
